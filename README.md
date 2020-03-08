@@ -1,1 +1,0 @@
-# oguzhanalver.github.io
